@@ -1,16 +1,21 @@
-## Hi there 👋
+## if you're reading this on purpose, hi.
 
-<!--
-**wpopsxnz/wpopsxnz** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_i mean, im gonna introduce myself. you're here for the informations right?_
 
-Here are some ideas to get you started:
+![akao rion gif](https://github.com/user-attachments/assets/d6062921-e86d-402d-855a-b1fe420306bd)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+at first, my name is thanh. you can call me by this name or whatever, i do have a lot of nicknames but you can increase the amount of it if you want to. ~~(you'll have to make sure if i feel comfortable with that shit or not btw)~~
+
+*__| 04/11 | bisexual | any pronouns | viet-eng | enfp | lowercase | free sitting |__*
+
+> mostly bllk – gi/hsr/hi3 areas, free sitting but please whisper to interact cuz if you see me sitting alone, it means im afk – offtab. (*and i dont want to be cuddled by a stranger, dont act too close or ill have to kick your ass out*)
+
+> any pronouns but i prefer he/him (im actually a male). 
+
+> i get mad easily, my jealous ass cant even handle itself so be careful if you want to talk about my favorite person. but dont worry, at least overreacting is not my problem to struggle with: i wont be shouting at you.
+
+```BIGGEST UZURION FAN IN THE WORLD```
+
+> **dni: RION HATERS, NAGURION SHIPPERS, pedo, homophobic, racist and whoever have my friends on their blacklist. like bro wtf DO NOT come to my town if you're hating on my homies or akao rion.**
+
+thats all :D bye       ![sakamoto-days-rion](https://github.com/user-attachments/assets/206d9df7-384e-48aa-bbcc-0381f07493d4)  
