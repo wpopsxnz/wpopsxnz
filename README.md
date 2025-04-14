@@ -7,7 +7,7 @@ _i mean, im gonna introduce myself. you're here for the informations right?_
 
 at first, my name is thanh. you can call me by this name or whatever, i do have a lot of nicknames but you can increase the amount of it if you want to. ~~(you'll have to make sure if i feel comfortable with that shit or not btw)~~
 
-*__| 04/11 | bisexual | any pronouns | viet-eng | enfp | lowercase | free sitting |__*
+*__| bisexual | any pronouns | viet-eng | enfp | lowercase | free sitting |__*
 
 > mostly bllk – gi/hsr/hi3 areas, free sitting but please whisper to interact cuz if you see me sitting alone, it means im afk – offtab. (*and i dont want to be cuddled by a stranger, dont act too close or ill have to kick your ass out*)
 
