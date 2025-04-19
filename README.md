@@ -10,7 +10,6 @@ at first, my name is thanh. you can call me by this name or whatever, i do have 
 
 
 
-![nHIJIXw](https://github.com/user-attachments/assets/5fc61b1a-7260-4344-b6b2-505740bc8b6e)
 *__| bisexual | any pronouns | viet-eng | enfp | lowercase | free sitting |__* ![87R1FBq](https://github.com/user-attachments/assets/6350fc7a-5e49-4e72-b063-a9fc890739c2)
 
 
@@ -22,7 +21,7 @@ at first, my name is thanh. you can call me by this name or whatever, i do have 
 
 ![49-E707-C7-A8-D7-47-B2-A807-705-F447-F4-A0-F](https://github.com/user-attachments/assets/87bbd7c9-e256-490a-a27d-20dc1049e40a) ```BIGGEST UZURION FAN IN THE WORLD```
 
-> **dni: RION HATER, NAGURION SHIPPER, pedo, homophobic, racist and whoever have my friends on their blacklist. like bro wtf DO NOT come to my town if you're hating on my homies or akao rion.** ![BEiG7rJ](https://github.com/user-attachments/assets/7a6545c2-8803-467e-ae13-a11cd8c433de)![ZVisLlw](https://github.com/user-attachments/assets/2748b0dc-fa57-41a3-9422-cc82952340f6)
+> **dni: RION HATER, NAGURION SHIPPER, pedo, homophobic, racist and whoever have my friends on their blacklist. like bro wtf DO NOT come to my town if you're hating on my homies or akao rion.** 
 
 
 
