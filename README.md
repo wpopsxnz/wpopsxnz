@@ -1,4 +1,4 @@
-## if you're reading this on purpose, hi. ![tumblr_08de6dbfb4dc793ad803842487dc689c_e113674a_75](https://github.com/user-attachments/assets/2c29d0c1-c6d8-4063-816d-506cf8163c4e)
+## if you're reading this on purpose, hi.
 
 
 _i mean, im gonna introduce myself. you're here for the informations right ![FARyhbz](https://github.com/user-attachments/assets/e58416f6-7e2d-49f0-980b-e96fe2157b21)
@@ -6,14 +6,14 @@ _i mean, im gonna introduce myself. you're here for the informations right ![FAR
 
 ![akao rion gif](https://github.com/user-attachments/assets/d6062921-e86d-402d-855a-b1fe420306bd)
 
-at first, my name is thanh. you can call me by this name or whatever, i do have a lot of nicknames but you can increase the amount of it if you want to. ~~(you'll have to make sure if i feel comfortable with that shit or not btw)~~ ![tumblr_462e429fe0603de599dbca085d7a2b25_a4764d49_75](https://github.com/user-attachments/assets/6062e5cf-5634-4af2-8c99-cfef6659bf94)
+at first, my name is thanh. you can call me by this name or whatever, i do have a lot of nicknames but you can increase the amount of it if you want to. ~~(you'll have to make sure if i feel comfortable with that shit or not btw)~~ 
 
 
 
-*__| bisexual | any pronouns | viet-eng | enfp | lowercase | free sitting |__* ![87R1FBq](https://github.com/user-attachments/assets/6350fc7a-5e49-4e72-b063-a9fc890739c2)
+*__| bisexual | any pronouns | viet-eng | enfp | lowercase | free sitting |__* ![tumblr_462e429fe0603de599dbca085d7a2b25_a4764d49_75](https://github.com/user-attachments/assets/6062e5cf-5634-4af2-8c99-cfef6659bf94)
 
 
-> mostly bllk – gi/hsr/hi3 areas, free sitting but please whisper to interact cuz if you see me sitting alone, it means im afk – offtab. **~~i dont want to be cuddled by a stranger, dont act too close or ill have to kick your ass out.~~***
+> mostly bllk – gi/hsr/hi3 areas, free sitting but please whisper to interact cuz if you see me sitting alone, it means im afk – offtab. **~~i dont want to be cuddled by a stranger, dont act too close or ill have to kick your ass out.~~**
 
 > any pronouns but i prefer he/him (im actually a male). 
 
