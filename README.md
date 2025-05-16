@@ -1,8 +1,7 @@
-## ![49-E707-C7-A8-D7-47-B2-A807-705-F447-F4-A0-F](https://github.com/user-attachments/assets/87bbd7c9-e256-490a-a27d-20dc1049e40a) ```BIGGEST UZURION FAN IN THE WORLD```
+## _stuck in the momment._
 
 
-![YASS AKAO RION](https://github.com/user-attachments/assets/5facc05a-3214-42fb-80df-ed51dece311d)
-
+![uzrn  ảo ảnh](https://github.com/user-attachments/assets/d5923987-0d2b-4105-a5fc-46c735ed2f2b)
 
 
 
@@ -12,3 +11,5 @@
 
 
 > **dni: RION HATER, NAGURION SHIPPER, pedo, homophobic, racist and whoever have my friends on their blacklist. DO NOT come to my town if you're hating on my homies or akao rion.** 
+
+
